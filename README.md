@@ -10,6 +10,8 @@ https://www.youtube.com/watch?v=cIZ7625Ts6A
 https://www.youtube.com/watch?v=YkvzT2KsD_s
 # The History of Wikipedia (in two minutes)
 https://www.youtube.com/watch?v=oVFPW0r4jWk&t=32s
+# Science, facts & metaphysical properties of crystals
+https://www.youtube.com/watch?v=_JiVotxx6hs
 
 # The Secret World: Everything Is True Trailer
 https://www.youtube.com/watch?v=bRY2tRU_OAo
