@@ -59,3 +59,12 @@ https://www.youtube.com/watch?v=DgaELI0LxJw
 https://www.youtube.com/watch?v=DqoQG_XYF-8
 # Watch Dogs: Launch Trailer
 https://www.youtube.com/watch?v=PFko4Kut39s
+
+# Keywords, nanobots, medical imaging systems, watchdogs, brainwaves signature, neuroplasticity, crysis 3, telemedicine. frequencies that help in healing
+# What Do Different Brainwaves Mean?
+https://www.youtube.com/watch?v=gvpuOBezW0w
+# Neuroplasticity, Animation.
+https://www.youtube.com/watch?v=dmEOJyWVQj4
+# Text, cellular damage, inflammation
+# Aura Cleansing Sleep Meditation: 7 Chakras cleansing meditation music, sleep meditation
+https://www.youtube.com/watch?v=w6sbrmcrSuo&list=RDQMzsh20SI1KCE&start_radio=1
