@@ -34,7 +34,8 @@ https://www.youtube.com/watch?v=pAU_QD-RGAI
 # Radiation Removal | Radiation Detox | Cleanse Electromagnetic Radiation From Cells And Surroundings
 https://www.youtube.com/watch?v=FcjkGn2VkZw
 
-
-
-
-
+# Keywords, medbed, conspiracy fact, scanning, crysis 3 trailer, watchdogs trailer
+# The Sci-Fi Alien Tech That Became QAnon’s Favorite Cure-All
+https://www.youtube.com/watch?v=EZLCJJJEsIM&t=55s
+# Conspiracy Theories That Turned Out to Be True
+https://www.youtube.com/watch?v=ONAK-CQVXYE
