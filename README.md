@@ -41,6 +41,8 @@ https://www.youtube.com/watch?v=EZLCJJJEsIM&t=55s
 https://www.youtube.com/watch?v=ONAK-CQVXYE
 # Medical Engineering - Medical Imaging Systems - Modalities - Part 1
 https://www.youtube.com/watch?v=vvftvjnXzsY
+# Crysis 3 - Nanosuit Trailer
+https://www.youtube.com/watch?v=DgaELI0LxJw
 # Watch Dogs Exposed Trailer - E3 2013
 https://www.youtube.com/watch?v=DqoQG_XYF-8
 # Watch Dogs: Launch Trailer
