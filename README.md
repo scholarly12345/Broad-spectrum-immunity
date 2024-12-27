@@ -39,3 +39,9 @@ https://www.youtube.com/watch?v=FcjkGn2VkZw
 https://www.youtube.com/watch?v=EZLCJJJEsIM&t=55s
 # Conspiracy Theories That Turned Out to Be True
 https://www.youtube.com/watch?v=ONAK-CQVXYE
+# Medical Engineering - Medical Imaging Systems - Modalities - Part 1
+https://www.youtube.com/watch?v=vvftvjnXzsY
+# Watch Dogs Exposed Trailer - E3 2013
+https://www.youtube.com/watch?v=DqoQG_XYF-8
+# Watch Dogs: Launch Trailer
+https://www.youtube.com/watch?v=PFko4Kut39s
