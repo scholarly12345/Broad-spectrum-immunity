@@ -13,18 +13,6 @@ https://www.youtube.com/watch?v=oVFPW0r4jWk&t=32s
 # Science, facts & metaphysical properties of crystals
 https://www.youtube.com/watch?v=_JiVotxx6hs
 
-# Text, vishnu, part of the hindu trinity, brahma, vishnu, shiva,
-# Text, characteristics of vishnu,
-# Text, rests on a snake, at the feet of this person you find his wife lakshmi,
-# Text, has different avatars,
-# Text, people debate about who's more powerful amongst brahma, vishnu and shiva,
-# Text, some people claim that vishnu is more powerful than shive, some people claim that shive is more powerful than vishnu, even have purported texts which they use to prove that claims,
-# Text, characteristics of the wife of vishnu,
-# Text, lakshmi,
-# Text, what is Lakshmi associated with? lakshmi is associated with wealth, however it does not mean that she has all the wealth, its another person, it means wherever there is lakshmi, there is wealth,
-# Text, what is wealth associated with, ego and pride, however good can also be done using it,
-# Text, maintainer, caretaker,
-
 # The Secret World: Everything Is True Trailer
 https://www.youtube.com/watch?v=bRY2tRU_OAo
 # Wolfenstein  - 'House of the Rising Sun' Launch Trailer (PEGI)
