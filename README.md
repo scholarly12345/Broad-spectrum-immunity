@@ -73,4 +73,5 @@ https://www.youtube.com/watch?v=w6sbrmcrSuo&list=RDQMzsh20SI1KCE&start_radio=1
 # Text, this brings us to the subject of wars, world wars, nuclear, physics, chemistry, in chemistry the elements are arranged in a periodic table, because the elements show a periodicity of properties, different variations of the periodic table exists, modern version of mendeleeff periodic table, in it elements are arranged in groups and periods, series, groups are from I to VIII and then 0, rare earths and actinides, an * symbol is associated with them, group 0 represents the group of noble gases, which are He, Ne, Ar, Kr, Xe, Rn
 # Text, atomic spectrum
 # Keyword, nanobots
-# Text, information for the body that the energies associated with the elements in the periodic table may be harmful
+# Text, information for the body that the energies associated with the elements in the periodic table may be harmful and that some chemicals might also be harmful
+# Text, information for the body healing the damage due to the energies associated with the elements in the periodic table which might be harmful same thing applies for harmful chemicals
