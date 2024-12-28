@@ -42,7 +42,6 @@ https://www.youtube.com/watch?v=GV8zPtqOyqg
 https://www.youtube.com/watch?v=pAU_QD-RGAI
 
 # Keywords, telemedicine
-# Text, radiation poison healing frequencies
 
 # Keywords, medbed, conspiracy fact, scanning, crysis 3 trailer, watchdogs trailer
 # The Sci-Fi Alien Tech That Became QAnon’s Favorite Cure-All
@@ -74,5 +73,4 @@ https://www.youtube.com/watch?v=w6sbrmcrSuo&list=RDQMzsh20SI1KCE&start_radio=1
 # Text, this brings us to the subject of wars, world wars, nuclear, physics, chemistry, in chemistry the elements are arranged in a periodic table, because the elements show a periodicity of properties, different variations of the periodic table exists, modern version of mendeleeff periodic table, in it elements are arranged in groups and periods, series, groups are from I to VIII and then 0, rare earths and actinides, an * symbol is associated with them, group 0 represents the group of noble gases, which are He, Ne, Ar, Kr, Xe, Rn
 # Text, atomic spectrum
 # Keyword, nanobots
-# Text, lanthanides
-# Keywords, radiation poison healing frequencies
+# Text, information for the body that the energies associated with the elements in the periodic table may be harmful
