@@ -41,9 +41,8 @@ https://www.youtube.com/watch?v=GV8zPtqOyqg
 # World first 3D-holographic smartphone |Future Invented Technology| 2018- 2050
 https://www.youtube.com/watch?v=pAU_QD-RGAI
 
-# Keywords, telemedicine, radiation poison removal
-# Radiation Removal | Radiation Detox | Cleanse Electromagnetic Radiation From Cells And Surroundings
-https://www.youtube.com/watch?v=FcjkGn2VkZw
+# Keywords, telemedicine
+# Text, radiation poison healing frequencies
 
 # Keywords, medbed, conspiracy fact, scanning, crysis 3 trailer, watchdogs trailer
 # The Sci-Fi Alien Tech That Became QAnon’s Favorite Cure-All
