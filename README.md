@@ -3,16 +3,7 @@ https://www.trustpilot.com/
 
 # Text, antartica, aurora, cosmic archive, energy materialization
 
-# Keywords, nanobots, biomedical engineering, mosquito based nanobots, 3d printing, holograms
-# Nano-Revolution: Robots Transforming Medicine and Saving Our Planet!
-https://www.youtube.com/watch?v=p8DAfjJugkI
-# Text, nanobot design inspired by mosquitoes
-# 3D Printing Is Changing the World
-https://www.youtube.com/watch?v=GV8zPtqOyqg
-# World first 3D-holographic smartphone |Future Invented Technology| 2018- 2050
-https://www.youtube.com/watch?v=pAU_QD-RGAI
-
-# Keywords, telemedicine
+# Text, nanobots, telemedicine
 
 # Keywords, medbed, conspiracy fact, scanning, crysis 3 trailer, watchdogs trailer
 # The Sci-Fi Alien Tech That Became QAnon’s Favorite Cure-All
