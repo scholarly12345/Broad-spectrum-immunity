@@ -1,9 +1,9 @@
 # Trustpilot
 https://www.trustpilot.com/
 
-# Text, healing sounds associated with the sun
-
 # Text, antartica, aurora, cosmic archive, energy materialization
+
+# Text, healing sounds associated with the sun
 
 # Text, nanobots, medical imaging, telemedicine
 
